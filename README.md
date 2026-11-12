@@ -6,7 +6,7 @@
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎hi
 
-ic sulfurricacid_ + 
+ic sulfurricacid_
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ![](https://komarev.com/ghpvc/?username=gambitboi&color=93022A)
 
